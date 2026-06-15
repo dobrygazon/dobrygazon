@@ -1,6 +1,6 @@
 # I'm Ramil 👋
 
-## Head of marketing | 10+ Years in Developer Tools  
+## Head of marketing / Product Owner | 10+ Years in Developer Tools  
 
 
 ### Portfolio
